@@ -77,3 +77,22 @@
 - 每周至少安排 2 次专项发球训练，每次 50~100 球。
 - 训练时设定不同落点目标，提高临场变化能力。
 - 赛前热身中加入 5~10 个精准发球，提前进入手感。
+
+---
+
+发球重要性排序：
+1 稳定性
+2 深度
+3 位置
+4 力量
+
+发球checklist：
+1 脚（左脚45度打开，右脚和底线平行
+2 手（手拿球离身体近一点，轻轻抛一下在身体前方）
+3 挥拍路径（我的击球点可能要低一些，稍后看看视频记录）
+
+[匹克球怎么发一个稳定的好球？来上一课]( https://www.xiaohongshu.com/explore/653631cb000000001e03c6d6?app_platform=ios&app_version=8.81.2&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBz9Kmblwq_V5bkKHT5RJBDf_WHdAECEiuB2WoB_N0Wdk=&author_share=1&xhsshare=WeixinSession&shareRedId=Nz80OURKPDw-OUpFPEE2Sjs6Tk01Oz48&apptime=1755499197&share_id=e36944445d0045e28ef7ea51abff01fd)
+
+[匹克球发球终极版教程]( https://www.xiaohongshu.com/explore/685b8b1e000000001203cbf0?app_platform=ios&app_version=8.81.2&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBHRhDc-WnFgGgjWcWAzgpxwqF_uquq8EQTlqg8GntPdI=&author_share=1&xhsshare=WeixinSession&shareRedId=Nz80OURKPDw-OUpFPEE2Sjs6Tk01Oz48&apptime=1755498849&share_id=89eed7799b32455eb8f851a17f2d810b)
+
+[匹克球入门教学 第一节：发球](https://www.xiaohongshu.com/explore/673a7676000000001901b56b?app_platform=ios&app_version=8.81.2&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBVlGFPiXwPvHWr_KIkzYEIQ0o9oZtFa5Fuh5VqCGDyV8=&author_share=1&xhsshare=WeixinSession&shareRedId=Nz80OURKPDw-OUpFPEE2Sjs6Tk01Oz48&apptime=1755500059&share_id=5ac0b238a1af46d48b37ffbc6cfcf735)
