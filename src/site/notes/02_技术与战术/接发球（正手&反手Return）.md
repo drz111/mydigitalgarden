@@ -75,3 +75,13 @@
 - 接发优先考虑稳定性，其次再考虑进攻性。
 - 正手适合进攻和制造变化，反手适合稳定控球。
 - 接发后尽快移动到有利位置（双打时进入网前或配合站位）。
+
+
+[像Quang Duong一样练正手DRIVE](https://www.xiaohongshu.com/explore/68ab1395000000001d0359ce?app_platform=ios&app_version=8.97.1&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBz3fU_8kpAy1mD3LomU0AoKTTQeCzdynfZ37p9mpT-rQ=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1756104890&share_id=1561c74bae8a45a99ca9bb46f39e89c9)
+
+[教你如何像職業選手一樣打正手](https://www.xiaohongshu.com/explore/6894784d0000000023038c13?app_platform=ios&app_version=8.97&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CB9xIrW7VdPHMJ0ePfxAN1H8P7QLNvW7_dR5OCA0GYg6k=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1755692145&share_id=f4fd172288ca4e26bc8b3f067076eb52)
+
+[正手击球脚步，匹克球新手必看！](https://www.xiaohongshu.com/explore/68a5257f000000001c032322?app_platform=ios&app_version=8.97&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBKsA1Y6geCpTVgnstV_oA7I-ktdUv5twJREXxkA_swn8=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1755692031&share_id=d64b34a4baeb406aa0743c167d029270)
+
+[一个小细节，正手击球力量翻倍](https://www.xiaohongshu.com/explore/682069400000000023016045?app_platform=ios&app_version=8.97&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBa0fcrWcjdSQxSEkN64cbfGKixI-6RC5hAtqePLmMEng=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1755691967&share_id=af82713829394c8aa009f6bcd2b2855b)
+

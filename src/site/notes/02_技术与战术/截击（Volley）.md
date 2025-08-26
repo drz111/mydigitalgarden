@@ -70,3 +70,11 @@
 - 截击时动作越简洁越好，减少准备时间。
 - 优先击打到对方脚边，迫使其抬球回击。
 - 截击后及时调整站位，防止被反打。
+
+
+[🟡匹克球tips：厨房前3种不同截击方式](https://www.xiaohongshu.com/explore/67b6f90a0000000029025a32?app_platform=ios&app_version=8.97.1&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CB4qz6Qn-XyARUEhmLZVe1PIxOVugoKW_G2RseANU_Kys=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1756108017&share_id=4fb180776e8445ddbdf56bc7ee8b1f12)
+
+
+[高手演示匹克球反手起球截击](https://www.xiaohongshu.com/explore/64d2000c000000001701b157?app_platform=ios&app_version=8.97&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CB4QLk-TLt6ddS2xkwKdkIkF9PEwiCrMNQh831D7UvD8k=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1755691525&share_id=661aad392ab64799abba191a9087a954)
+
+[这 5 个训练将让你在比赛中爆发](https://www.xiaohongshu.com/explore/68a5c998000000001c00b7e5?app_platform=ios&app_version=8.97&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBKsA1Y6geCpTVgnstV_oA7PDSriD11-aE-BwO6scFgiM=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1755697664&share_id=9c67be7abd2a43b3b232fb4b21227446)

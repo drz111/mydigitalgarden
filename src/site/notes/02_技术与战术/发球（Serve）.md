@@ -96,3 +96,5 @@
 [匹克球发球终极版教程]( https://www.xiaohongshu.com/explore/685b8b1e000000001203cbf0?app_platform=ios&app_version=8.81.2&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBHRhDc-WnFgGgjWcWAzgpxwqF_uquq8EQTlqg8GntPdI=&author_share=1&xhsshare=WeixinSession&shareRedId=Nz80OURKPDw-OUpFPEE2Sjs6Tk01Oz48&apptime=1755498849&share_id=89eed7799b32455eb8f851a17f2d810b)
 
 [匹克球入门教学 第一节：发球](https://www.xiaohongshu.com/explore/673a7676000000001901b56b?app_platform=ios&app_version=8.81.2&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBVlGFPiXwPvHWr_KIkzYEIQ0o9oZtFa5Fuh5VqCGDyV8=&author_share=1&xhsshare=WeixinSession&shareRedId=Nz80OURKPDw-OUpFPEE2Sjs6Tk01Oz48&apptime=1755500059&share_id=5ac0b238a1af46d48b37ffbc6cfcf735)
+
+[教你如何摆脱发球无力](https://www.xiaohongshu.com/explore/675edce9000000000700ebb6?app_platform=ios&app_version=8.97.1&share_from_user_hidden=true&xsec_source=app_share&type=video&xsec_token=CBOPNbOTfseE3-Yz7tXB7L3-VyzkWc33CVqOE1ZdC1PKo=&author_share=1&xhsshare=WeixinSession&shareRedId=ODdGQklJOUo2NzUyOTgwNjczOTc9SjhM&apptime=1756109094&share_id=7f231ece2f95437992d3f4e036a12eae)
